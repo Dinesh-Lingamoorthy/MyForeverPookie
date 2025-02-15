@@ -1,2 +1,1 @@
-# MyForeverPookie
-Creating this repo is for my forever kunjummma
+# my_perfect_life
